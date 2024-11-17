@@ -1,4 +1,4 @@
-# Penelope King
+# Penny King
 | pking@ucsd.edu
 
 ## Section A16
